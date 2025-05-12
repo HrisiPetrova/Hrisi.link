@@ -1,2 +1,0 @@
-# Hrisi.link
-Hrisi.link
